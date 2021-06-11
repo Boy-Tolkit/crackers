@@ -1,0 +1,1 @@
+#RECOD AJA GAK PAPA 😁
